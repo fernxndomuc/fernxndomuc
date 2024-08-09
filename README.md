@@ -1,0 +1,2 @@
+- 👀 Me interesa aprender programacion para arduino 
+- ⚡Actualmente estoy estudiando electronica
